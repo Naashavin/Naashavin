@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Naashavin
 - 👀 I’m interested in playing games
-- 🌱 I’m currently learning python and c programming
+- 🌱 I’m currently learning......
 - 💞️ I’m looking to collaborate on company which pays me well...
 - 📫 How to reach me through whatsapp 99427680**
 - 😄 Pronouns: A VI NAA SH
