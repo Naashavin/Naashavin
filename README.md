@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Naashavin
 - 👀 I’m interested in playing games
-- 🌱 I’m currently learning Datascience related tools and Artificial intelligence 
-- 💞️ I’m looking to collaborate on company which pays me well but the money<<<humanity
-- 📫 How to reach me through whatsapp 9942768009
+- 🌱 I’m currently learning Data Science related tools and Artificial Intelligence 
+- 💞️ I’m looking to collaborate on a company that pays me well, but the money<<<humanity
+- 📫 How to reach me through email: avinaashannadurai2@gmail.com
 - 😄 Pronouns: A VI NAA SH
 - ⚡ Fun Fact: Keep my peers happy
 
