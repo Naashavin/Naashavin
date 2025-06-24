@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Naashavin
+- 👋 Hi, I’m @Avinaash
 - 👀 I’m interested in playing games
 - 🌱 I’m currently learning Data Science-related tools and Artificial Intelligence 
 - 💞️ I’m looking to collaborate on a company that pays me well, but the money<<<humanity
