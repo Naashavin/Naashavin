@@ -2,7 +2,7 @@
 - 👀 I’m interested in playing games
 - 🌱 I’m currently learning Data Science-related tools and Artificial Intelligence 
 - 💞️ I’m looking to collaborate on a company that pays me well, but the money<<<humanity
-- 📫 How to reach me through email: avinaashannadurai@gmail.com
+- 📫 How to reach me through email: avinaash.a18@gmail.com
 - 😄 Pronouns: A VI NAA SH
 - ⚡ Fun Fact: Keep my peers happy
 
